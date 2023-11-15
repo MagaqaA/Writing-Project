@@ -1,0 +1,2 @@
+# My Current Commitments
+**I do not have any major financial commitments at the moment, apart from the monthly repayments of a small personal loan I have through my bank. With regards to time, I am the one who is responsible for house chores and preparing dinner when my family goes to either school or work. I am also partially responsible for looking after my niece, who is 7 years old.**
